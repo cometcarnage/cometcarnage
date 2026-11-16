@@ -25,7 +25,7 @@
 
   <div align="center">
   
-[@illrotinthesnow](https://github.com/illrotinthesnow)　　[@eleuthromaniacs](https://github.com/eleuthromaniacs)　　[@lovepolicies / @SUBSP4CE](https://github.com/SUBSP4CE)　　[@ALEPHTHREAT](https://github.com/ALEPHTHREAT)　　
+[@illrotinthesnow](https://github.com/illrotinthesnow)　　[@eleutheromaniacs](https://github.com/eleutheromaniacs)　　[@lovepolicies / @SUBSP4CE](https://github.com/SUBSP4CE)　　[@ALEPHTHREAT](https://github.com/ALEPHTHREAT)　　
 </div>
 
 <p align="center">$\color{#2CBFA2}{\textsf{ + my non-ponytown oomfs <3 }}$
