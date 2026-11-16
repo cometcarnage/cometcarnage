@@ -5,7 +5,7 @@
 
 <p align="center">$\color{#FF0066}{\textsf{ ALWAYS INTERACT WITH EXTREME CAUTION }}$
 
-<p align="center"><img width="800" height="600" alt="image" src="https://i.imgur.com/RiPPxxA.png" />
+<p align="center"><img width="800" height="600" alt="art by serotoniias" src="https://i.imgur.com/RiPPxxA.png" />
 
 <p align="center">$\color{#FF0066}{\textsf{ tripmine / noxious ✦ bodily 18yrs ✦ it/its only }}$
 <p align="center">$\color{#FF0066}{\textsf{ fictive heavy system with bpd, ocd, asd, and hallucinatory + paranoia issues }}$
